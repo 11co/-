@@ -1,0 +1,1 @@
+illegal kullanımlarda sorumlulugumda degidlir
